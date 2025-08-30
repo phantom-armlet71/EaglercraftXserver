@@ -1,3 +1,1 @@
-<div align="center">
-<img src="https://www.google.com/search?q=https://fontmeme.com/permalink/240621/72225642431668f498c4d2d4c062c3e1.png" alt="EgalercraftXserver" border="0">
-</div>
+<img src="https://drive.google.com/file/d/1bUpx_UhHE4IrL3cSUQcSHwrKYix_43PL/view">
